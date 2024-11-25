@@ -5,7 +5,7 @@ This is the Final Project
 Group Members:
 
 1. Tywaine Peters
-2.
+2.Jelena Smith
 3.
 4.
 5.
